@@ -1,4 +1,4 @@
-
+Experience life together rp like never before with advanced Script for life together rp, the #1 Script. Includes anti-ban and auto-sell for
 
 
 
